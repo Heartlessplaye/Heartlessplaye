@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **anujkumarjha4303@gmail.com**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/16zeEuuVFi2vidsuYICN8qhry1elVmfuH/view?usp=drive_link](https://drive.google.com/file/d/16zeEuuVFi2vidsuYICN8qhry1elVmfuH/view?usp=drive_link)
+
 - ⚡ Fun fact **I can do this only (24 - 8) * 7**
 
 <h3 align="left">Connect with me:</h3>
